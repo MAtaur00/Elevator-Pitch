@@ -1,6 +1,8 @@
 # ELEVATOR PITCH  
   
-  
+“I am [Marc Tarrés](), student of the
+[Bachelor’s Degree in Video Games by UPC at CITM](https://www.citm.upc.edu/ing/estudis/graus-videojocs/). This content is generated for the second year’s subject Project 2, under supervision of lecturer [Ricard Pillosu](https://es.linkedin.com/in/ricardpillosu).”  
+
 ## What’s an elevator pitch?  
 
 The elevator pitch is called like that because you should be able to pique the interest of the person you’re talking to about yourself or your project in no more than a brief elevator ride. Done right, this short speech helps you introduce yourself to career connections in a compelling way.
