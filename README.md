@@ -60,22 +60,23 @@ Make sure that you're aware of your body language  as you talk, which conveys ju
   
   
 
-Your elevator pitch should be brief. As said before, you should restrict it at 60 seconds max. You don't need to include your entire work history and career objectives.  
+**Your elevator pitch should be brief.** As said before, you should restrict it at 60 seconds max. You don't need to include your entire work history and career objectives.  
 
-You need to be persuasive. Even though it's a short pitch, your elevator speech should be persuasive enough to spark the listener's interest in your idea, organization, or background.  
+**You need to be persuasive.** Even though it's a short pitch, your elevator speech should be persuasive enough to spark the listener's interest in your idea, organization, or background.  
 
-Share your skills. Your elevator pitch should explain who you are and what qualifications and skills you have. Try to focus on assets that add value in many situations. Share what you bring to the table.   
+**Share your skills.** Your elevator pitch should explain who you are and what qualifications and skills you have. Try to focus on assets that add value in many situations. Share what you bring to the table.   
 
-Practice. The best way to get comfortable with an elevator pitch is to practice it until the speed and “pitch” come naturally, without sounding robotic. You will become comfortable varying the conversation as you practice with it. Try saying your speech to a friend, or record it. This will help you know if you are staying within the time limit and giving a coherent message.   
+**Practice.** The best way to get comfortable with an elevator pitch is to practice it until the speed and “pitch” come naturally, without sounding robotic. You will become comfortable varying the conversation as you practice with it. Try saying your speech to a friend, or record it. This will help you know if you are staying within the time limit and giving a coherent message.   
 
-Mention your goals. You don't need to get too specific. An overly targeted goal isn't helpful, since your pitch will be used in many circumstances, and with many different types of people. But do remember to say what you're looking for. For instance, you might say, "a role in accounting" or "an opportunity to apply my sales skills to a new market" or "to relocate to San Francisco with a job in this same industry."   
+**Mention your goals.** You don't need to get too specific. An overly targeted goal isn't helpful, since your pitch will be used in many circumstances, and with many different types of people. But do remember to say what you're looking for. For instance, you might say, "a role in accounting" or "an opportunity to apply my sales skills to a new market" or "to relocate to San Francisco with a job in this same industry."   
 
-Know your audience, and speak to them. Adapt your language to make the speech appealing for the kind of audience you have. You don’t want to approach someone who really knows nothing about the industry than the same way you would do it with an expert. Remember to tailor your pitch for different audiences, if appropriate.  
+**Know your audience, and speak to them.** Adapt your language to make the speech appealing for the kind of audience you have. You don’t want to approach someone who really knows nothing about the industry than the same way you would do it with an expert. Remember to tailor your pitch for different audiences, if appropriate.  
 
 ### What not to say and do during your elevator pitch
 
-Don't speak too fast. Yes, you only have a short time to convey a lot of information. But don't try to fix this by speaking quickly. This will just make it hard for listeners to absorb your message.
-Avoid rambling. This is why it's so important to practice your elevator speech.
+**Don't speak too fast.** Yes, you only have a short time to convey a lot of information. But don't try to fix this by speaking quickly. This will just make it hard for listeners to absorb your message.  
+
+**Avoid rambling.** This is why it's so important to practice your elevator speech.
 While you don't want to over-rehearse, and subsequently sound stilted, you also don't want to have unfocused or unclear sentences in your pitch, or get off-track. 
  
-Don't speak in a monotone. Here's one of the downsides to rehearsing: it can leave you more focused on remembering the exact words you want to use, and less on how you're carrying yourself. Keep your energy level high, positive, and enthusiastic. Modulate your voice to keep listeners interested, and keep your facial expression friendly. 
+**Don't speak in a monotone.** Here's one of the downsides to rehearsing: it can leave you more focused on remembering the exact words you want to use, and less on how you're carrying yourself. Keep your energy level high, positive, and enthusiastic. Modulate your voice to keep listeners interested, and keep your facial expression friendly. 
