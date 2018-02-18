@@ -10,14 +10,14 @@ Keep in mind that the objective of this speech is not to sell but to make your p
 
 ### What's in an elevator pitch?
 
-This speech is all about you: who you are, what you do, and what you want to do (if you're job hunting).
-Your elevator pitch is a way to share your expertise and credentials quickly and effectively with people who don't know you.
+This speech is all about you: who you are, what you do, and what you want to do (if you're job hunting).  
+Your elevator pitch is a way to share your expertise and credentials quickly and effectively with people who don't know you.  
 If you’re trying to get investors for a project, it has to include the right information about it to make it interesting.  
 
 ### When and how to use an elevator pitch
 
-If you're job searching, you can use your elevator pitch at job fairs and career expos, and online in your LinkedIn summary or Twitter bio.
-You can also use your elevator pitch to introduce yourself at networking events and mixers. If you're attending professional association programs and events, or any other type of gathering, have your pitch ready to share with those you meet.
+If you're job searching, you can use your elevator pitch at job fairs and career expos, and online in your LinkedIn summary or Twitter bio.  
+You can also use your elevator pitch to introduce yourself at networking events and mixers. If you're attending professional association programs and events, or any other type of gathering, have your pitch ready to share with those you meet.  
 Your elevator pitch can be used during job interviews, especially when you're asked about yourself. Should an interviewer ask something like "Tell me about yourself" think of your elevator pitch as a super-condensed version of your response to that request.
  
  
