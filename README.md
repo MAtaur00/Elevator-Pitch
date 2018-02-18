@@ -1,6 +1,6 @@
 # ELEVATOR PITCH  
   
-I am [Marc Tarrés](), student of the
+I am [Marc Tarrés](https://www.linkedin.com/in/marc-tarr%C3%A9s-i-urbieta-7268a6159/), student of the
 [Bachelor’s Degree in Video Games by UPC at CITM](https://www.citm.upc.edu/ing/estudis/graus-videojocs/). This content is generated for the second year’s subject Project 2, under supervision of lecturer [Ricard Pillosu](https://es.linkedin.com/in/ricardpillosu).  
 
 ## What’s an elevator pitch?  
