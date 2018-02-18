@@ -30,6 +30,7 @@ Start by thinking about the objective of your pitch.
 Do you want to tell potential clients about your organization? Do you have a great new product idea that you want to pitch to an executive? Or do you want a simple and engaging speech to explain what you do for a living?  
   
 2. Explain what you do  
+ 
 Start your pitch by describing what your organization does. Focus on the problems that you solve and how you help people. 
 Ask yourself this question as you start writing: what do you want your audience to remember most about you?  
 Keep in mind that your pitch should excite you first; after all, if you don't get excited about what you're saying, neither will your audience. People may not remember everything that you say, but they will likely remember your enthusiasm.  
