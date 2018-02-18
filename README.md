@@ -23,7 +23,7 @@ Your elevator pitch can be used during job interviews, especially when you're as
   
 It can take some time to get your pitch right. You'll likely go through several versions before finding one that is compelling, and that sounds natural in conversation.  
   
-1. Identify your goal  
+1. Identify your goal agfdaystdfasydey  
 
 Start by thinking about the objective of your pitch.
 Do you want to tell potential clients about your organization? Do you have a great new product idea that you want to pitch to an executive? Or do you want a simple and engaging speech to explain what you do for a living?  
