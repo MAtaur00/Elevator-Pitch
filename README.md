@@ -6,11 +6,11 @@ I am [Marc Tarrés](https://www.linkedin.com/in/marc-tarr%C3%A9s-i-urbieta-7268a
 ![ep 1](/docs/ep%201.jpg)  
     
     
-## What’s an elevator pitch?ahsdfajsdfasd  
+## What’s an elevator pitch?
 
 The elevator pitch is called like that because you should be able to pique the interest of the person you’re talking to about yourself or your project in no more than a brief elevator ride. Done right, this short speech helps you introduce yourself to career connections in a compelling way.
 Keep in mind that the objective of this speech is not to sell but to make your project interesting, get another interview further ahead.   
-![ep 4](https://github.com/MAtaur00/Elevator-Pitch/blob/master/docs/ep%204.jpg)  
+![ep 4](/docs/ep%204.jpg)  
   
 ### What's in an elevator pitch?
 
@@ -24,7 +24,7 @@ If you're job searching, you can use your elevator pitch at job fairs and career
 You can also use your elevator pitch to introduce yourself at networking events and mixers. If you're attending professional association programs and events, or any other type of gathering, have your pitch ready to share with those you meet.  
 Your elevator pitch can be used during job interviews, especially when you're asked about yourself. Should an interviewer ask something like "Tell me about yourself" think of your elevator pitch as a super-condensed version of your response to that request.
   
-![ep 3](https://github.com/MAtaur00/Elevator-Pitch/blob/master/docs/ep%203.jpg)  
+![ep 3](/docs/ep%203.jpg)  
   
 ## Creating an elevator pitch  
   
@@ -58,7 +58,7 @@ Make sure that you're aware of your body language  as you talk, which conveys ju
 
 ## Tips  
   
-![ep 2](https://github.com/MAtaur00/Elevator-Pitch/blob/master/docs/ep%202.png)  
+![ep 2](/docs/ep%202.png)  
   
 ### How to make your elevator pitch better  
   
