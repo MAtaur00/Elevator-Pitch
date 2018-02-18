@@ -81,6 +81,7 @@ While you don't want to over-rehearse, and subsequently sound stilted, you also 
 ## Links to documentation  
   
 [Examples and writings of an elevator pitch](https://www.thebalance.com/elevator-speech-examples-and-writing-tips-2061976)  
-[Elevator Pitch](https://www.mindtools.com/pages/article/elevator-pitch.htm)
+[Elevator Pitch](https://www.mindtools.com/pages/article/elevator-pitch.htm)  
+[How to Nail Your Elevator Pitch](https://www.themuse.com/advice/perfect-pitch-how-to-nail-your-elevator-speech)
 
 
