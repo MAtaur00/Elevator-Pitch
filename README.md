@@ -6,13 +6,15 @@ I am [Marc Tarrés](), student of the
 ## What’s an elevator pitch?  
 
 The elevator pitch is called like that because you should be able to pique the interest of the person you’re talking to about yourself or your project in no more than a brief elevator ride. Done right, this short speech helps you introduce yourself to career connections in a compelling way.
-Keep in mind that the objective of this speech is not to sell but to make your project interesting, get another interview further ahead.
-What's in an elevator pitch?
+Keep in mind that the objective of this speech is not to sell but to make your project interesting, get another interview further ahead.  
+
+### What's in an elevator pitch?
 
 This speech is all about you: who you are, what you do, and what you want to do (if you're job hunting).
 Your elevator pitch is a way to share your expertise and credentials quickly and effectively with people who don't know you.
-If you’re trying to get investors for a project, it has to include the right information about it to make it interesting.
-When and how to use an elevator pitch
+If you’re trying to get investors for a project, it has to include the right information about it to make it interesting.  
+
+### When and how to use an elevator pitch
 
 If you're job searching, you can use your elevator pitch at job fairs and career expos, and online in your LinkedIn summary or Twitter bio.
 You can also use your elevator pitch to introduce yourself at networking events and mixers. If you're attending professional association programs and events, or any other type of gathering, have your pitch ready to share with those you meet.
