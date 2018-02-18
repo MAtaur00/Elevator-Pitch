@@ -22,26 +22,31 @@ Your elevator pitch can be used during job interviews, especially when you're as
 ## Creating an elevator pitch  
   
 It can take some time to get your pitch right. You'll likely go through several versions before finding one that is compelling, and that sounds natural in conversation.  
+  
 1. Identify your goal  
 
 Start by thinking about the objective of your pitch.
 Do you want to tell potential clients about your organization? Do you have a great new product idea that you want to pitch to an executive? Or do you want a simple and engaging speech to explain what you do for a living?  
+  
 2. Explain what you do  
 
 Start your pitch by describing what your organization does. Focus on the problems that you solve and how you help people. 
 Ask yourself this question as you start writing: what do you want your audience to remember most about you?
 Keep in mind that your pitch should excite you first; after all, if you don't get excited about what you're saying, neither will your audience. People may not remember everything that you say, but they will likely remember your enthusiasm.  
+  
 3. Communicate your USP and explain your business model  
 
 How are you going to make money?
 Why is it going to be a success?
 Your elevator pitch also needs to communicate your unique selling proposition , or USP.
 Identify what makes you, your organization, or your idea, unique. You'll want to communicate your USP after you've talked about what you do.  
+  
 4. Put it all together  
 
 When you've completed each section of your pitch, put it all together.
 Then, read it aloud and use a stopwatch to time how long it takes. It should be no longer than 60 seconds. Otherwise you risk losing the person's interest, or monopolizing the conversation.
 Then, try to cut out anything doesn't absolutely need to be there. Remember, your pitch needs to be compelling, so the shorter it is, the better!  
+  
 5. Practice  
 
 Like anything else, practice makes perfect. Remember, how you say it is just as important as what you say. If you don't practice, it's likely that you'll talk too fast, sound unnatural, or forget important elements of your pitch.
