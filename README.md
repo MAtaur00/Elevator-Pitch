@@ -76,4 +76,11 @@ Make sure that you're aware of your body language  as you talk, which conveys ju
 **Avoid rambling.** This is why it's so important to practice your elevator speech.
 While you don't want to over-rehearse, and subsequently sound stilted, you also don't want to have unfocused or unclear sentences in your pitch, or get off-track. 
  
-**Don't speak in a monotone.** Here's one of the downsides to rehearsing: it can leave you more focused on remembering the exact words you want to use, and less on how you're carrying yourself. Keep your energy level high, positive, and enthusiastic. Modulate your voice to keep listeners interested, and keep your facial expression friendly. 
+**Don't speak in a monotone.** Here's one of the downsides to rehearsing: it can leave you more focused on remembering the exact words you want to use, and less on how you're carrying yourself. Keep your energy level high, positive, and enthusiastic. Modulate your voice to keep listeners interested, and keep your facial expression friendly.  
+  
+## Links to documentation  
+  
+[Examples and writings of an elevator pitch](https://www.thebalance.com/elevator-speech-examples-and-writing-tips-2061976)  
+[Elevator Pitch](https://www.mindtools.com/pages/article/elevator-pitch.htm)
+
+
